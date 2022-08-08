@@ -15,4 +15,18 @@ Many photographers come to take pictures in Winter.
 This is the picture they took.![1790_伊豆沼 (1)](https://user-images.githubusercontent.com/108656454/182290193-c9003f28-c78c-4cdf-82d9-deb65e92e11b.jpg)
 source:https://www.tohokukanko.jp/photos/detail_1790.html
 
-I hope ypu'll visit.
+I hope you'll visit.
+
+2.Mt. Kurikoma
+
+Kurihara has a famous mountain. That is Mount Kurikoma.
+The mountain is 5,334 feet high and suitable for climbing.
+
+There are four seasons in Japan, and the mountains show various expressions.
+It is especially famous for autumn leaves. The mountains dyed red attract people's hearts.
+
+The starry sky seen from Mt. Kurikoma is also famous.
+Like this
+
+Many climbers and photographers visit every year and leave their memories.
+
