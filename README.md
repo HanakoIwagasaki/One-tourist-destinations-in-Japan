@@ -26,7 +26,7 @@ There are four seasons in Japan, and the mountains show various expressions.
 It is especially famous for autumn leaves. The mountains dyed red attract people's hearts.
 
 The starry sky seen from Mt. Kurikoma is also famous.
-
+![201505280411149ba](https://user-images.githubusercontent.com/108656454/183329387-caa439f7-6743-47a4-a995-0925864ca6ee.jpg)
 source:http://oikawaroom.blog46.fc2.com/tb.php/1640-2c299f20
 
 Many climbers and photographers visit every year and leave their memories.
