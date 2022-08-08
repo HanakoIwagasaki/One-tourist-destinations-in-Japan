@@ -32,5 +32,13 @@ source:http://oikawaroom.blog46.fc2.com/tb.php/1640-2c299f20
 
 Many climbers and photographers visit every year and leave their memories.
 
+3.Hosokura Mine Park
+
+At Hosokura Mine Park, you can experience the mine tunnel and learn about the history of the mine. The tunnel has a total length of 77７m, and you can feel the history of the mine while being enveloped in the cold air. Sand drift mining is also possible in the tunnel.
+
+There is a lift and a 555m slider outside, so even families can enjoy it.
+
+Kurihara is a nice place full of nature. Let's go sightseeing!!
+We are waiting in Kurihara.
 
 
