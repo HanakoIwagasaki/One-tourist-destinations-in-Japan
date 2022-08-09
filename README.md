@@ -35,6 +35,7 @@ Many climbers and photographers visit every year and leave their memories.
 
 At Hosokura Mine Park, you can experience the mine tunnel and learn about the history of the mine. The tunnel has a total length of 77７m, and you can feel the history of the mine while being enveloped in the cold air. 
 ![242984010_1757298814657719_8040850122822652706_n](https://user-images.githubusercontent.com/108656454/183547812-d03b5dab-847c-4663-b1c3-fce67c8ac195.jpg)
+source:https://ja-jp.facebook.com/HOSOKURAMINEPARK/
 
 Gold panning is also possible in the tunnel.
 
