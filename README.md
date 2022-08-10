@@ -21,6 +21,7 @@ I hope you'll visit.
 
 Kurihara has a famous mountain. That is Mt. Kurikoma.
 The mountain is 5,334 feet high and suitable for climbing.
+![田植えも終わってホッとする夕暮れ　小](https://user-images.githubusercontent.com/108656454/183816845-9003ece9-a72c-43d2-a210-ca17981812ff.jpg)
 
 There are four seasons in Japan, and the mountains show various expressions.
 It is especially famous for autumn leaves. The mountains dyed red attract people's hearts.
